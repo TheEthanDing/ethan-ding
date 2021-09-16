@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ethan-ding
-- 👀 I’m interested in startups, angel investing, exchanges, income share agreements 
+- 👀 I’m interested in marketplaces, prediction markets, and income share agreements 
 - 🌱 I’m currently learning about product management
 - 📫 Hit me up at heyethanding@gmail.com 
 
